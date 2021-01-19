@@ -8,7 +8,7 @@ I am currently engaged in an Assessment Boycott and other Actions Short of a Str
     
  2. related ‘cost-saving measures’ that have left us without adequate staffing and without adequate working conditions for providing a safe and fair environment for student learning.
 
-Negotiations between GUCU representatives and senior management are ongoing, and we are making every possible effort to reach a resolution. As part of this action, UCU members have been advised not to give formal feedback, marks, cover for absent colleagues or undertake voluntary activities.
+### Negotiations between GUCU representatives and senior management are ongoing, and we are making every possible effort to reach a resolution. As part of this action, UCU members have been advised not to give formal feedback, marks, cover for absent colleagues or undertake voluntary activities.
 
 If you are a student, you may discuss this further with your module tutors, your Departmental student or staff union representatives.
 
