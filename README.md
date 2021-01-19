@@ -5,6 +5,7 @@ Goldsmiths UCU is in dispute with our employer over a reduction in staffing leve
 The next phase of the restructure threatens more compulsory redundancies despite net student figures holding up and alternative non-staff cost saving opportunities having been identified by the Independent Business Review carried out by KPMG. 
 
 The review itself is also wasting precious resources on KPMG – almost the same amount “saved” by cutting our casualised colleagues in the summer. 
+#### Timeline will show highlight of meeting notes, full meeting notes will be linked to the date provided. 
 
 # Timeline:
 
